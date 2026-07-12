@@ -1,11 +1,16 @@
-# giant wip
+# giant wip // mainly for PT!!
 <p align="center">
-  "C’mon, I know you’re busy, but you gotta eat sometime."
+ heya, refer to me as ST4R / x (no not the twitter.) 
+</p>
+<p align="center">
+ feel free to int, most of the time i'm alone or with friends, im always open to c+h.
+</p>
+<p align="center">
+basic dni and stuff, jst use common sense and we're chill.
 </p>
 <p align="center">
   insert fandoms i know here lmao
 </p>
-
 <p align="center">
   <img width="90" height="90" alt="image" src="https://github.com/user-attachments/assets/0bc916de-25ec-40eb-9410-5eef9b8fc636" />
   <img width="90" height="90" alt="picmix com_13877615" src="https://github.com/user-attachments/assets/ea1af969-fcb7-4e6d-8ddc-decd41ed8afd" />
@@ -14,7 +19,7 @@
 <img width="90" height="90" alt="image" src="https://github.com/user-attachments/assets/4e5d0af0-6fb1-44be-9e7f-a5cdb5fe0e8d" />
 </p>
 <p align="center">
-Project Moon (Mainly LCB) , Pigrimalled (roblox), CC (Crimnaal Case), MD , Touhou/2hou
+Project Moon (Mainly LCB) , Pilgrammed (roblox), CC (Criminal Case), MD , Touhou/2hou
 <p align="center">
 and alot more probably.. i can't brain storm rn sobs
 </p>
