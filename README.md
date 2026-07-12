@@ -14,6 +14,9 @@
 <img width="90" height="90" alt="image" src="https://github.com/user-attachments/assets/4e5d0af0-6fb1-44be-9e7f-a5cdb5fe0e8d" />
 </p>
 <p align="center">
+Project Moon (Mainly LCB) , Pigrimalled (roblox), CC (Crimnaal Case), MD , Touhou/2hou
+<p align="center">
 and alot more probably.. i can't brain storm rn sobs
 </p>
+
 
