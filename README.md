@@ -1,14 +1,5 @@
 # giant wip // mainly for PT!!
 <p align="center">
- heya, refer to me as ST4R / x (no not the twitter.) 
-</p>
-<p align="center">
- feel free to int, most of the time i'm alone or with friends, im always open to c+h.
-</p>
-<p align="center">
-basic dni and stuff, jst use common sense and we're chill.
-</p>
-<p align="center">
   insert fandoms i know here lmao
 </p>
 <p align="center">
@@ -23,5 +14,10 @@ Project Moon (Mainly LCB) , Pilgrammed (roblox), CC (Criminal Case), MD , Touhou
 <p align="center">
 and alot more probably.. i can't brain storm rn sobs
 </p>
+
+<p align="center">
+<sub><small>psps.. PILGRAMMED FANS PLEASE INTERACT!!!!</small></sub>
+<p align="center">
+
 
 
