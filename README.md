@@ -1,4 +1,4 @@
-# giant wip // mainly for PT!!
+# giant wip 
 <p align="center">
   insert fandoms i know here lmao
 </p>
