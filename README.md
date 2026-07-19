@@ -1,5 +1,9 @@
 # giant wip 
 <p align="center">
+found everywhere? (mainly spawnarea (PROJECTMOON), treess above the marketplace, and rarely inside said market placee (twst area) 
+</p>
+
+<p align="center">
   insert fandoms i know here lmao
 </p>
 <p align="center">
