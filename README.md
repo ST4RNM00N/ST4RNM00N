@@ -1,16 +1,22 @@
+
 <p align="center">
 . . . . . ╰──╮⋆ ★╭──╯ . . . . .
-
-  <img width="890" height="200" alt="Screenshot_2026-08-05_at_5 42 15_PM" src="https://github.com/user-attachments/assets/c9396467-c9b2-418e-bea2-e60af329dea4" />
 </p>
-
-<p align="left">
-<sub><small>btw this is jst place holder.. (will replace.. also still giant wip help) </small></sub>
-<p align="center">
+<div align="center">
+  <img align="left" width="250" height="250" alt="Untitled264_20260805182328" src="https://github.com/user-attachments/assets/9fec9170-c78c-4117-8223-b2fdb874eb8c"  />
   
-<p align="left">
-  found everywhere? (mainly spawnarea (PROJECTMOON), treess above the marketplace, and rarely inside said market placee (twst area)
-</p>
+ <br>
+  isn't my persona so cute?<br>
+  <br>
+  uh I guess.. I could be.. everywhere?<br>
+  (mainly spawnarea (PROJECTMOON),<br>
+  treess above the marketplace,<br>
+  and rarely inside said market placee (twst area)<br>
+  <br>
+  btw still wip.
+
+  <br clear="left"/>
+</div>
 
 
 <p align="center">
