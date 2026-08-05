@@ -18,6 +18,9 @@
   <br clear="left"/>
 </div>
 
+<p align="center">
+───────۶ৎ───────
+</p>
 
 <p align="center">
 <sub><small>insert fandoms i know here lmao </small></sub>
