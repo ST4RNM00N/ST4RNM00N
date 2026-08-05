@@ -5,7 +5,7 @@
 </p>
 
 <p align="left">
-<sub><small>btw this is jst place holder.. (WILL REPLACE.) </small></sub>
+<sub><small>btw this is jst place holder.. (will replace.. also still giant wip help) </small></sub>
 <p align="center">
   
 <p align="left">
