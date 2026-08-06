@@ -7,7 +7,9 @@
   
  <br>
   isn't my persona so cute?<br>
+ she just trying her best. <br>
   <br>
+ 
   uh I guess.. I could be.. everywhere?<br>
   (mainly spawnarea (PROJECTMOON),<br>
   treess above the marketplace,<br>
