@@ -3,17 +3,18 @@
 . . . . . ╰──╮⋆ ★╭──╯ . . . . .
 </p>
 <div align="center">
-  <img align="left" width="250" height="250" alt="Untitled264_20260805182328" src="https://github.com/user-attachments/assets/9fec9170-c78c-4117-8223-b2fdb874eb8c"  />
+  <img align="left" width="300" height="300" alt="Untitled264_20260805182328" src="https://github.com/user-attachments/assets/9fec9170-c78c-4117-8223-b2fdb874eb8c"  />
   
  <br>
   isn't my persona so cute?<br>
  she just trying her best. <br>
   <br>
- 
-  uh I guess.. I could be.. everywhere?<br>
-  (mainly spawnarea (PROJECTMOON),<br>
-  treess above the marketplace,<br>
-  and rarely inside said market placee (twst area)<br>
+   <br>
+hi, refer to me as X or star (preferbly x, but not the twitter/hj)<br>
+multifandom, you can see which fandoms im in by seeing the gifs beloww <br>
+(let me know what media/fandom ur in, and i'll let u know if i fw with it!) <br>
+ <br>
+
   <br>
   btw still wip.
 
