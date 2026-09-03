@@ -20,21 +20,27 @@
                     c+h is open/enc!!</p>
                     <p>usually, im where im cosplaying at their respective areas,<br>
                     (commonly at spawn, trees at bakery or above marketplace.)</p>
-                </td>
+                      </td>
             </tr>
         </table>
-        <div class="fandoms-section">
+ 
+
+
+ <div align="center" style="margin-top: 30;">
             <details>
-                <summary>[-] FANDOMS</summary>
-                <div class="squares-row">
-                <tr>
+                <summary> FANDOMS</summary>
+                <table align="center" style="border-collapse: separate; border-spacing: 10; width: auto; margin-top: 15;">
+                    <tr>
                     <td class="square"><img width="90" height="90" alt="image" src="https://github.com/user-attachments/assets/0bc916de-25ec-40eb-9410-5eef9b8fc636" /></td>
                     <td class="square"> <img width="90" height="90" alt="picmix com_13877615" src="https://github.com/user-attachments/assets/ea1af969-fcb7-4e6d-8ddc-decd41ed8afd"alt="Fandom 2"></td>
                     <td class="square"><img width="90" height="90" alt="image" src="https://github.com/user-attachments/assets/dad70b94-bd13-49e0-8744-e8e85692b280" /></td>
                     <td class="square"><img width="90" height="90" alt="image" src="https://github.com/user-attachments/assets/403c29dd-f01e-4ed9-9507-203add827be8"alt="Fandom 4"></td>
                     <td class="square"><img width="90" height="90" alt="image" src="https://github.com/user-attachments/assets/4e5d0af0-6fb1-44be-9e7f-a5cdb5fe0e8d"alt="Fandom 5"></td>
-                </tr>
-            </table>
-        </details>
+                </table>
+                <p>Project Moon (Mainly LCB) , Pilgrammed (roblox), CC (Criminal Case), MD , Touhou/2hou </p>
+                <p>and alot more probably.. i can't brain storm rn sobs</p>
+                <sub>psps.. PILGRAMMED FANS PLEASE INTERACT!!!!</sub>
+            </details>
+        </div>
     </div>
-
+</body>
