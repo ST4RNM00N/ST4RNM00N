@@ -18,7 +18,7 @@
                     <p>lone most of the time , or with friends<br>
                     basic dni ; jst be chill and we're even.<br>
                     c+h is open/enc!!</p>
-                    <p>usually, im where im cosplaying at their respective areas,<br>
+                    <p>usually, im at where what I am cos in their respective areas,<br>
                     (commonly at spawn, trees at bakery or above marketplace.)</p>
                       </td>
             </tr>
