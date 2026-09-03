@@ -1,29 +1,27 @@
 
 <p align="center">
-. . . . . ╰──╮⋆ ★╭──╯ . . . . .
+. . . . . . . . . . . . ╰──╮⋆ ★╭──╯ . . . . . . . . . . . . 
 </p>
 <div align="center">
-  <img align="left" width="300" height="300" alt="Untitled264_20260805182328" src="https://github.com/user-attachments/assets/9fec9170-c78c-4117-8223-b2fdb874eb8c"  />
+  <img align="left" width="324" height="451" alt="2026_09_03_0is_Kleki" src="https://github.com/user-attachments/assets/03241617-f2a3-4068-acb3-1863da44f317" />
   
- <br>
-  isn't my persona so cute?<br>
- she just trying her best. <br>
-  <br>
    <br>
 hi, refer to me as X or star (preferbly x, but not the twitter/hj)<br>
 multifandom, you can see which fandoms im in by seeing the gifs beloww <br>
 (let me know what media/fandom ur in, and i'll let u know if i fw with it!) <br>
  <br>
+  <br>
+lone most of the time , or with friends <br>
+basic dni ; jst be chill and we’re even. <br>
+ c+h is open/enc!! <br>
+ <br>
 
   <br>
-  btw still wip.
-
+ usually, im where im cosplaying at their respective areas, <br>
+ (commonly at spawn, trees at bakery or above marketplace.) <br>
   <br clear="left"/>
 </div>
 
-<p align="center">
-───────۶ৎ───────
-</p>
 
 <p align="center">
 <sub><small>insert fandoms i know here lmao </small></sub>
