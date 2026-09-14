@@ -19,7 +19,8 @@
                     basic dni ; jst be chill and we're even.<br>
                     c+h is open/enc!!</p>
                     <p>usually, im at where what I am cos in their respective areas,<br>
-                    (commonly at spawn, trees at bakery or above marketplace.)</p>
+                    (commonly at spawn, trees at bakery or above marketplace.)<br>
+                    if not-, im just with my lovely oomfs or folks!! </p>
                       </td>
             </tr>
         </table>
